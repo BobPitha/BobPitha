@@ -1,3 +1,4 @@
+![Tiger](https://pitha.net/images/TigerTransparent.png)
 # Hi!! I'm @BobPitha
 **...who are you?** Leave me a message if you like.
 
